@@ -1,1 +1,1 @@
-Power is given to God
+Reading is good
